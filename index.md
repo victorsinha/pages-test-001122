@@ -1,5 +1,6 @@
 # Victor Sinha
-**Software Developer**
+** LinkedIn: ** _https://www.linkedin.com/in/victorsinha/_
+** Mobile:** _+91 8158852987_ | ** E-Mail: ** _victor_sinha@outlook.com_
 
 
 **Technical Experience Summary**
